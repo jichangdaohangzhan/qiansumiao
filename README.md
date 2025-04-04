@@ -11,13 +11,13 @@
 **访问官网**：点击下方链接进入
 
 - [ **千速喵机场官方地址入口1**](https://tmsrets.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口2**](tmsretb.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口3**](tsmeod.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口4**](tsmeog.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口5**](tmsretv.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口6**](tmsrets.top/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口7**](tsre-s.cc/zh/#/auth/signup;referral=kVtPUsAw)
-- [ **千速喵机场官方地址入口8**](tmsretb.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口2**](https://tmsretb.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口3**](https://tsmeod.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口4**](https://tsmeog.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口5**](https://tmsretv.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口6**](https://tmsrets.top/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口7**](https://tsre-s.cc/zh/#/auth/signup;referral=kVtPUsAw)
+- [ **千速喵机场官方地址入口8**](https://tmsretb.top/zh/#/auth/signup;referral=kVtPUsAw)
 
 ![image](https://github.com/user-attachments/assets/5ea643b9-19e5-4f62-9432-dd719b044480)
 
